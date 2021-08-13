@@ -1,1 +1,0 @@
-# EV-Studios-Internship-Assignments
